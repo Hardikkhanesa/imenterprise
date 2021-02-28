@@ -22,10 +22,7 @@ featureImage: /uploads/abc-laptop...05.jpg
 
   ![](/uploads/abc-laptop...04.jpg)
 * ***Learn Numbers from 1 to 10 Learn Alphabets from A to Z***
-
-  ![](/uploads/abc-laptop...2.jpg)
-
-  * ***Activity range from basics like alphabetical learning, writing words, spelling missing latter***
+* ***Activity range from basics like alphabetical learning, writing words, spelling missing latter***
 
   ![](/uploads/abc-laptop...01.jpg)
 * ***Great educational toy for kids Best Education Toy For Kids ideal for gift***
