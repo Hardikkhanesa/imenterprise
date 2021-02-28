@@ -1,7 +1,6 @@
 ---
 title: 4 PART KITCHEN SET
-subtitle: 4 PART Dream House Kitchen Set Kids Luxury Battery Operated Kitchen
-  Super Set Toy With Light And Sound Carry Case
+subtitle: RS.1199/-
 category:
   - Toys
 author: IM ENTERPRISE
@@ -20,23 +19,20 @@ Modern Kitchen Play Set with Opening Doors of Oven, Fridge, Sink and Kitchen Cab
 
 ![](/uploads/4-part...03.jpg)
 
-<!--StartFragment-->
+
 
 * Best cooking pretend play set for active role play and super fun filled hours. A cooking range unit with openable oven door with light and sound. This unit also contains a top openable unit Theme based 4 station beautiful kitchen set. An international standard kitchen set with french doors refrigerator having a mock water dispenser unit The third unit consists of a sink unit with rotating tap and an openable base and top unit. The entire kitchen set consists of various utensils (Pots and Pans),
 
-<!--EndFragment-->
-
 ![](/uploads/4-part...04.jpg)
 
-<!--StartFragment-->
+
 
 * Discover and Explore: Lovely modelling, deep to attract children's attention, Encourage children to explore
 * Sensory Stimulation: Bright Colors could draw kid's attention and improve interest in learning
 * It will Shining And Make a Sound When Turn on The gas Cooker
 * Best cooking pretend play set for active role play and super fun filled hours. A cooking range unit with openable oven door with light and sound. This unit also contains a top openable unit Theme based 4 station beautiful kitchen set. An international standard kitchen set with french doors refrigerator having a mock water dispenser unit The third unit consists of a sink unit with rotating tap and an openable base and top unit. The entire kitchen set consists of various utensils (Pots and Pans),
-* Motor Skills" oneself start work can promote the important motot skills
 
-<!--EndFragment-->
+
 
 ![](/uploads/4-part...07.jpg)
 
