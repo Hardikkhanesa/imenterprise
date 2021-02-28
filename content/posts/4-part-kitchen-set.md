@@ -11,28 +11,22 @@ A Premium Product from the House of IM ENTERPRISE.  4 STATION BEAUTIFUL KITCHEN 
 
 ![](/uploads/4-part...01.jpg)
 
-<!--StartFragment-->
+
 
 Modern Kitchen Play Set with Opening Doors of Oven, Fridge, Sink and Kitchen Cabinet. Tableware, Dining Set, Utensils Can Be Organized In The Cabinet. Push The Knob on The Stove-Top To Listen To Whistling Sound with Light. Serve Fruits from Fruits Rack. Wash The Utensils In The Kitchen Sink. Drink a Chilled Drink with Ice Cubes. Simulates a Real Modern Kitchen with Lots of Accessories. Batteries are Included. For Ages 3+. Colors and Designs May Vary.
 
-<!--EndFragment-->
+
 
 ![](/uploads/4-part...03.jpg)
-
-
 
 * Best cooking pretend play set for active role play and super fun filled hours. A cooking range unit with openable oven door with light and sound. This unit also contains a top openable unit Theme based 4 station beautiful kitchen set. An international standard kitchen set with french doors refrigerator having a mock water dispenser unit The third unit consists of a sink unit with rotating tap and an openable base and top unit. The entire kitchen set consists of various utensils (Pots and Pans),
 
 ![](/uploads/4-part...04.jpg)
 
-
-
 * Discover and Explore: Lovely modelling, deep to attract children's attention, Encourage children to explore
 * Sensory Stimulation: Bright Colors could draw kid's attention and improve interest in learning
 * It will Shining And Make a Sound When Turn on The gas Cooker
 * Best cooking pretend play set for active role play and super fun filled hours. A cooking range unit with openable oven door with light and sound. This unit also contains a top openable unit Theme based 4 station beautiful kitchen set. An international standard kitchen set with french doors refrigerator having a mock water dispenser unit The third unit consists of a sink unit with rotating tap and an openable base and top unit. The entire kitchen set consists of various utensils (Pots and Pans),
-
-
 
 ![](/uploads/4-part...07.jpg)
 
