@@ -7,14 +7,5 @@ author: hardik
 date: 2021-02-26T13:02:55.285Z
 featureImage: /uploads/1.jpg
 ---
+
 Chu Chu toys Price : 500
-
-![](/uploads/paymentfail.svg)
-
-Our products are too much classy as usual.
-
-
-
-![](/uploads/about-hero.jpg)
-
-![]()
