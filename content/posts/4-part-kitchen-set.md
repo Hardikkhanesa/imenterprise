@@ -1,6 +1,6 @@
 ---
 title: 4 PART KITCHEN SET
-subtitle: RS.1199/-
+subtitle: RS.1099/- ONLY
 category:
   - Toys
 author: IM ENTERPRISE
