@@ -7,11 +7,7 @@ author: IM ENTERPRISE (MAYUR KATHIRIYA)
 date: 2021-02-28T09:02:18.895Z
 featureImage: /uploads/abc-laptop...05.jpg
 ---
-
-
-
-
-**\     * RS.430 ONLY***
+**\-----------------------------------------------      *RS.430 ONLY  -------------------------------------------------------***
 
 
 
