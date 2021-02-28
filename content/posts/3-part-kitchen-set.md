@@ -1,6 +1,6 @@
 ---
 title: 3 PART KITCHEN SET
-subtitle: RS.999/-
+subtitle: RS.999/-  ONLY
 category:
   - Toys
 author: IM ENTERPRISE (MAYUR KATHIRIYA)
