@@ -9,12 +9,10 @@ featureImage: /uploads/1.jpg
 ---
 Chu Chu toys Price : 500
 
-![](/uploads/paymentfail.svg)
+![](/uploads/logo.png)
 
 Our products are too much classy as usual.
 
+![](/uploads/cat-1045782_1920.jpg)
 
-
-![](/uploads/about-hero.jpg)
-
-![]()
+![](/uploads/disqus-hero.jpg)
