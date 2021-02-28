@@ -1,16 +1,14 @@
 ---
-title: Sample toys
-subtitle: "Sample "
+title: Dancing Dog
+subtitle: Dancing like ......
 category:
-  - Third Party Integrations
-author: Daniel Kelly
+  - About Awake
+author: Im Enterprice
 date: 2021-02-28T02:40:47.018Z
-featureImage: /uploads/inside-glacier-cave-2.jpg
+featureImage: /uploads/dancingdog1.jpg
 ---
+![](/uploads/dancingdog1.jpg)
+
 Sample test
 
-
-
-
-
-![](/uploads/daniel.jpg)
+![](/uploads/dancingdog2.jpg)
