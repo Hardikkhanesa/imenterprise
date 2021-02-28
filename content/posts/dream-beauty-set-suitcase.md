@@ -7,17 +7,13 @@ author: IM ENTERPRISE (MAYUR KATHIRIYA)
 date: 2021-02-28T08:49:25.996Z
 featureImage: /uploads/dream-beauty...01.jpg
 ---
+ 
 
 
 
+ ** *\--------------------------------------------------  RS.430/- ONLY***  **\----------------------------------------------**
 
- ** *\    RS.430/- ONLY***        
-
-
-
-
-
-
+   
 
 * ***Little Makeup Artist--Recommend This Kids Makeup Kit Who Love To Play With Mother'S Makeup. Start Off Your Child'S Make Up Skills With This Makeup Set. Not Only Will Your Little Princess Girls Are Entertained For Hours, But Also Mimic Mother'S Makeup Skill To Dress Up, And Such Mimicking Behavior Will Fire Their Imagination And Enhance Their Creative Play.***
 * ***All The Make Up Set Toys Are Made By Environmental And Durable Plastics. Special Design On Tool Edge Can Prevent Your Kids From Hurt, So You Don’T Need To Worry That Your Toddler Will Cut Themselves By Accident. Makeup Playset Will Be Resistant To Your Kid Throwing, Dropping Or Banging Them Around While Playing And Pretending.***
