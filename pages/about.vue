@@ -17,6 +17,27 @@
           <p>
             We are dealing in various type of toys.
           </p>
+          <p>
+            <strong>
+              Name : Mayur Kathiriya
+            </strong>
+          </p>
+          <p>
+            <strong>
+              Mobile : +91 9624597809
+            </strong>
+          </p>
+          <p>
+            <strong>
+              Email : imenterprise.mayur@gmail.com
+            </strong>
+          </p>
+          <p>
+            <strong>
+              Address : 58/ Ganeshdham Society, Opposite Muktidham Estate Nikol
+              Gam Road Ahmedabad-382350
+            </strong>
+          </p>
         </div>
       </template>
 
