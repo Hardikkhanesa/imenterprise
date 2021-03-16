@@ -2,7 +2,8 @@
 title: 2 PART KITCHEN SET
 subtitle: RS. 599/- ONLY
 category:
-  - Toys
+  - "ALL  CATEGORIES  TOYS "
+  - ROLE PLAY TOYS
 author: IM ENTERPRISE ( MAYUR KATHIRIYA)
 date: 2021-02-28T08:29:00.661Z
 featureImage: /uploads/2-part...01.jpg
