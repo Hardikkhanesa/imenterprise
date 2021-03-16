@@ -3,6 +3,8 @@ title: STUNT CAR
 subtitle: RS.510/-  ONLY
 category:
   - Toys
+  - "ALL  CATEGORIES  TOYS "
+  - REMOTE CONTROL TOY
 author: IM ENTERPRISE (MAYUR KATHIRIYA)
 date: 2021-02-28T09:38:17.216Z
 featureImage: /uploads/stunt-car...08.jpeg
