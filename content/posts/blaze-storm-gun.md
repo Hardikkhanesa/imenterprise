@@ -2,7 +2,8 @@
 title: BLAZE STORM GUN
 subtitle: RS. 350 ONLY
 category:
-  - Toys
+  - GUN & CUBE
+  - "ALL  CATEGORIES  TOYS "
 author: IM ENTERPRISE (MAYUR KATHIRIYA)
 date: 2021-03-16T16:39:25.429Z
 featureImage: /uploads/bz-01.jpg
