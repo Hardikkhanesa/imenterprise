@@ -3,6 +3,8 @@ title: NEON CUBE
 subtitle: RS.120/- ONLY
 category:
   - Toys
+  - "ALL  CATEGORIES  TOYS "
+  - GUN & CUBE
 author: IM ENTERPRISE
 date: 2021-03-16T17:28:35.343Z
 featureImage: /uploads/neon-.jpg
