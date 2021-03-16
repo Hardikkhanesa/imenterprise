@@ -3,6 +3,7 @@ title: 3 PART KITCHEN SET
 subtitle: RS.999/-  ONLY
 category:
   - ROLE PLAY TOYS
+  - "ALL  CATEGORIES  TOYS "
 author: IM ENTERPRISE (MAYUR KATHIRIYA)
 date: 2021-02-28T08:22:53.716Z
 featureImage: /uploads/3-part-...01.jpg
