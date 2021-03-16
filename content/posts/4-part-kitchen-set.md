@@ -2,7 +2,8 @@
 title: 4 PART KITCHEN SET
 subtitle: RS.1099/- ONLY
 category:
-  - Toys
+  - "ALL  CATEGORIES  TOYS "
+  - ROLE PLAY TOYS
 author: IM ENTERPRISE
 date: 2021-02-28T08:03:24.738Z
 featureImage: /uploads/4-part...01.jpg
