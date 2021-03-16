@@ -2,7 +2,8 @@
 title: DREAM BEAUTY SET SUITCASE
 subtitle: RS.430/- ONLY
 category:
-  - Toys
+  - "ALL  CATEGORIES  TOYS "
+  - ROLE PLAY TOYS
 author: IM ENTERPRISE (MAYUR KATHIRIYA)
 date: 2021-02-28T08:49:25.996Z
 featureImage: /uploads/dream-beauty...01.jpg
