@@ -2,7 +2,8 @@
 title: DREAM KITCHEN SET SUITCASE
 subtitle: RS.430/- ONLY
 category:
-  - Toys
+  - "ALL  CATEGORIES  TOYS "
+  - ROLE PLAY TOYS
 author: IM ENTERPRISE (MAYUR KATHIRIYA)
 date: 2021-02-28T08:41:09.058Z
 featureImage: /uploads/dream-kitchen-...01.jpg
