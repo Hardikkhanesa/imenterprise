@@ -3,6 +3,8 @@ title: ROCK CRAWLER 4 WGHEEL DRIVE MULTICOLOR
 subtitle: RS.1250/-
 category:
   - Toys
+  - "ALL  CATEGORIES  TOYS "
+  - REMOTE CONTROL TOY
 author: IM ENTERPRISE
 date: 2021-03-16T17:22:47.751Z
 featureImage: /uploads/rcb-1.jpg
